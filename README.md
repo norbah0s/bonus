@@ -1,9 +1,9 @@
 # Norbahis Hoş Geldin! 🚀 Güncel Giriş Linki ve Bahis Fırsatları Burada! 🎉
 
-# [Norbahis Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Norbahis Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Norbahis Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Norbahis Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
+# [Norbahis Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Norbahis Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Norbahis Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Norbahis Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
 
 <br>
 
