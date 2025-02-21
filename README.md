@@ -1,4 +1,10 @@
-# Welcome to your organization's demo respository
-This code repository (or "repo") is designed to demonstrate the best GitHub has to offer with the least amount of noise.
+# Norbahis Hoş Geldin! 🚀 Güncel Giriş Linki ve Bahis Fırsatları Burada! 🎉
 
-The repo includes an `index.html` file (so it can render a web page), two GitHub Actions workflows, and a CSS stylesheet dependency.
+# [Norbahis Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
+# [Norbahis Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
+# [Norbahis Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
+# [Norbahis Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
+
+<br>
+
+## Norbahis’de eğlenceye ve kazançlara hızla katıl! 🎯 En yeni giriş linki ile şansını yakala, büyük ödülleri kazan! 💰 Unutma, her an bir sürpriz seni bekliyor! 🎁
